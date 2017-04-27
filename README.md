@@ -1,2 +1,2 @@
-# Graphics-Work8
-StuyCS: Graphics: Work 8
+# Vandana Agarwala
+# Graphics: Work 8
